@@ -1,2 +1,5 @@
-# jzbnzr.github.io
+# SNYDER CUT. 
+
+RESTORE SNYDERVERSE!
+
 I love the snyder cut.
